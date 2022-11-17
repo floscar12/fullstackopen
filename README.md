@@ -1,1 +1,1 @@
-![certificate](https://i.imgur.com/1eLLKeG.png)
+![certificate](https://i.imgur.com/q3Sj6qR.png)
